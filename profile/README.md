@@ -1,8 +1,13 @@
 📣Product name: [CBD One Gummies](https://supplementcarts.com/cbd-one-gummies-official/)
+
 📣 Rating : ★★★★★ (5.0)
+
 📣 Side effects : No Side Effects
+
 📣Availability: [Online](https://supplementcarts.com/cbd-one-gummies-official/)
+
 📣 Results – in 1-3 months
+
 📣 Where to buy: [Click Here to Rush Your Order from the Official](https://supplementcarts.com/cbd-one-gummies-official/)
 
 ## Introduction
